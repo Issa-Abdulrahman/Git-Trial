@@ -76,3 +76,15 @@
  . Analysis and Reports 
 
  . google forms
+ 
+# Recetionist and Data Entry at Tripoli Entrepreneurs Club
+# Lebanon from Mar 2022 till Apr 2023 
+
+ - Greeting the visitors
+ 
+ - Cleaning Data
+
+ - Analysis and Reports 
+
+ - google forms
+ 
